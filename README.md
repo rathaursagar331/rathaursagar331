@@ -7,7 +7,6 @@
 
 - 🌱 I’m currently learning **web development**
 
-- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/sagar-rathaur-924265287?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](https://www.linkedin.com/in/sagar-rathaur-924265287?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 - 📫 How to reach me **sagarrathaur331@gmail.com**
 
