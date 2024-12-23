@@ -10,6 +10,8 @@
 
 - 📫 How to reach me **sagarrathaur331@gmail.com**
 
+- Visit my all Profile  **https://linktr.ee/rathaur_sagar331**
+
 - ⚡ Fun fact **I am funny😎**
 
 <h3 align="left">Connect with me:</h3>
